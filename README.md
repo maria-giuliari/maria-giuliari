@@ -1,1 +1,1 @@
-# Maria A. Giuliari -- Estudante de Engenharia de Software
+# Maria A. Giuliari - Estudante de Engenharia de Software
